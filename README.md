@@ -1,2 +1,0 @@
-# sollicitatie-trustoo
-sollicitatie-trustoo
